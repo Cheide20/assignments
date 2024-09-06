@@ -1,0 +1,1 @@
+Video to assignment 1: https://aaudk-my.sharepoint.com/:v:/r/personal/cheide20_student_aau_dk/Documents/Optagelser/Assignment%201.mp4?csf=1&web=1&e=RIqyDs&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D 
