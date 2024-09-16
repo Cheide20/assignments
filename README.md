@@ -1,1 +1,3 @@
 Video to assignment 1: https://aaudk-my.sharepoint.com/:v:/r/personal/cheide20_student_aau_dk/Documents/Optagelser/Assignment%201.mp4?csf=1&web=1&e=RIqyDs&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D 
+
+Video to assignment 2: https://aaudk-my.sharepoint.com/personal/cheide20_student_aau_dk/_layouts/15/stream.aspx?id=%2Fpersonal%2Fcheide20%5Fstudent%5Faau%5Fdk%2FDocuments%2FOptagelse%2D20240916%5F091845%2Ewebm&nav=%7B%22defaultNavPanel%22%3A%7B%22pluginName%22%3A%22MediaSettingsLayer%22%7D%7D&referrer=StreamWebApp%2EWeb&referrerScenario=AddressBarCopied%2Eview%2Ee868a549%2Dde69%2D4d86%2Da789%2Dfa16b95c4dc0 
